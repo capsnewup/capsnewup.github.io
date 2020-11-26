@@ -1,1 +1,1 @@
-# [capsnewup.github.io](https://capsnewup.github.io/)
+#  https://capsupnew.github.io/
